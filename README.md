@@ -1,2 +1,2 @@
 # test
-//brak wpisu
+//nowy wpis
