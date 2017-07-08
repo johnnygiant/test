@@ -1,2 +1,1 @@
-# test
-dupaaaaaaa
+inny wpis
