@@ -1,1 +1,1 @@
-co innego
+qqqqqq
