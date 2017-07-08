@@ -1,2 +1,1 @@
-# test
-now napis
+inny wpis
