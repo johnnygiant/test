@@ -1,1 +1,1 @@
-inny wpis
+co innego
